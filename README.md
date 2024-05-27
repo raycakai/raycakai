@@ -6,3 +6,4 @@
 - corinthians🖤🤍
 - Ariana♈(aquariana nata)
 
+![](https://media1.tenor.com/m/VSVDHzb_XW4AAAAC/vai-pra-cima-torcida.gif)
